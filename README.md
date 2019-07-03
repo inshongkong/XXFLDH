@@ -2,7 +2,6 @@
 
 小X福利导航永久域名：www.xxfldh.com
 小X福利导航最新地址：www.as577.com
-小X福利导航地址发布QQ群：741073135
 防屏蔽地址①：https://www.mdrkj.com/xxfldh/
 防屏蔽地址②：https://www.zgyxyd.com/xxfldh/
 动动手指将本地址发布页收藏起来，永不迷路。  
