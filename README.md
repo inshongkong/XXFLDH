@@ -1,7 +1,7 @@
 # - 小X福利导航官方网址：www.xxfldh.com -
 
 小X福利导航永久域名：www.xxfldh.com<br />
-小X福利导航最新地址：www.as577.com<br />
+小X福利导航最新地址：www.xxfldh.cc<br />
 小X福利导航地址发布QQ群：741073135<br />
 防屏蔽地址①：https://www.mdrkj.com/xxfldh/<br />
 防屏蔽地址②：https://www.zgyxyd.com/xxfldh/<br />
